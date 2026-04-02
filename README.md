@@ -1,10 +1,8 @@
-- 👋 Hi, I’m @Frisk-yes
-- 👀 I’m interested in programming
-- 🌱 I’m currently learning in school
-- 💞️ I’m looking to collaborate on 
-- 📫 How to reach me?
+HIIIIII [CENSORED] 💜💜💜💜💜
+IMA ACTUAL 3D DESIGHNER MY NAME IS [CENSORED] BUT U CAN CALL ME...
+[CENSORED]!!!
+I LOVE [CENSORED] AND [CENSORED], BUT MOST OF ALL I LOVE HOT UNPROTECTED [CENSORED]!
+SOOOOOO PLZ LOVE ME AND [CENSORED] ME! ^^
 
-<!---
-Frisk-yes/Frisk-yes is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
+...wANNA SOME MONSTER ENERGY?...
